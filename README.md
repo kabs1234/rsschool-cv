@@ -1,1 +1,1 @@
-https://kabs1234.github.io/rsschool-cv/cv
+https://kabs1234.github.io/rsschool-cv/
